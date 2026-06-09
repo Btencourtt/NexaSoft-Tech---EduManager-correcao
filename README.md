@@ -1,0 +1,1 @@
+# NexaSoft-Tech---EduManager-corre-o
